@@ -1,2 +1,2 @@
 # Logo
-Thye designs of my Logo
+The designs of my Logo
